@@ -7,7 +7,7 @@ In the ever-evolving world of online casinos, CryptoLeo - https://track.chillipa
   <tr>
     <th>✅ Product</th>
     <th>Promo Code</th>
-    <th>Exculise Bonus</th>
+    <th>Exclusive Bonus</th>
   </tr>
   <tr>
     <td>➡️ CryptoLeo Promo Code</td>
